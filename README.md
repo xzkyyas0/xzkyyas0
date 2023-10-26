@@ -9,3 +9,7 @@ Meu nome e Yasmin Furlan Tibes.
 ### Voce pode entrar em contato comigo 📧
 
 tibes.yasmin@escola.pr.gov.br 
+
+
+
+![](https://media.tenor.com/XDCbuWRNFagAAAAC/moana.gif)
